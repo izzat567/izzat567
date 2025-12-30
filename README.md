@@ -30,7 +30,7 @@
 
 ### 📫 Contact Information
 - 📧 Email: **dedat58034@gmail.com**  
-- 💼 LinkedIn: https://linkedin.com/in/izzat-ikhmal  
+- 💼 LinkedIn: **https://www.linkedin.com/in/izzatikhmal/**
 
 ---
 
